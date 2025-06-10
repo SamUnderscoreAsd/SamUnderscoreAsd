@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **fssamfarajzadeh@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YgELn5gu7feFdo9MjVSmAdJ4FmO92dR9/view?usp=sharing](https://drive.google.com/file/d/1YgELn5gu7feFdo9MjVSmAdJ4FmO92dR9/view?usp=sharing)
+
 - ⚡ Fun fact **I am a super-fan of the Nintendo DS hardware line.**
 
 <h3 align="left">Connect with me:</h3>
